@@ -1,1 +1,2 @@
-# summermclaughlin.github.io
+# Summer McLaughlin
+# Astrophysicist 
